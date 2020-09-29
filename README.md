@@ -1,7 +1,7 @@
-Binkys Birthday Song
+Binkys Cool Birthday Song
 -----------------------------
 
-Happy birthday, happy birthday,
+Happy birthday!!!!!!!!!!, Happy birthday,
 Whoop-de-doo, whoop-de-doo!
 May your day be pleasant, open up your present,
 Just for you, just for you!
